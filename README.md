@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @usamahayat2012
+- 👀 I’m interested in JAVA and c++ and I'm also a graphic designer and 3d modeller
+- 🌱 I’m currently learning JAVA
+- 💞️ I’m looking to collaborate on any graphics related project
+- 📫 You can contact me on whatssapp +923485928278 
+- 📫 My facebook and instagram id is usama.hayat.165
